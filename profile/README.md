@@ -1,1 +1,1 @@
-![Untitled-2](https://github.com/Game-Factory-Academy/.github/assets/70329389/fd0eab05-6db5-48d6-aa01-4374161b1bff)
+![Untitled-2]([https://github.com/Game-Factory-Academy/.github/assets/70329389/fd0eab05-6db5-48d6-aa01-4374161b1bff](https://github.com/SKILLED-Academy/.github/blob/main/profile/banner_Github.png)https://github.com/SKILLED-Academy/.github/blob/main/profile/banner_Github.png)
